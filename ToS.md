@@ -1,4 +1,4 @@
-## 📜 **QUINX ESCROW TERMS OF SERVICE**
+## 📜 **QUINX ESCROW – TERMS OF SERVICE**
 
 By using [**@QuinxEscrow**](https://t.me/QuinxEscrow), you agree to the following terms:
 
